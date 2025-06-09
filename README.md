@@ -2,7 +2,7 @@
 - 👀 I’m interested in Game Develop
 - 🌱 I’m currently learning C/C++ in Japan
 - 📫 How to reach me : Just dm me
-- 😄 Pronouns: wtf is pronounds just call me Crow or Raven
+- 😄 Pronouns: wtf is pronouns just call me Crow or Raven
 - ⚡ Fun fact: i like Crow tbh
 
 <!---
